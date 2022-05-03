@@ -8,4 +8,4 @@
 
 🤝 I am **available for limited freelancing/consulting engagements**. Reach out via hello@fnteach.com and tell me what you’re looking to build.
 
-🎥 When I’m not working with clients, you can catch me building in public over on Twitch about twice a week. I livestream on all things design, development, and ultimately building a business out of the two, usually every Tuesday and Thursday at 10 a.m. CEST. Follow me on Twitch to get notified when I go live: https://twitch.tv/domhabersack
+🎥 When I’m not working with clients, you can catch me build in public over on Twitch about twice a week. I livestream on all things design, development, and ultimately building a business out of the two, usually every Tuesday and Thursday at 10 a.m. CEST. Follow me on Twitch to get notified when I go live: https://twitch.tv/domhabersack
